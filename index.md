@@ -1,1 +1,2 @@
-Greetings
+<p><img class="aligncenter size-medium wp-image-69" title="sealand" src="http://startamicronation.info/wp-content/uploads/2011/04/sealand-300x220.jpg" alt="" width="163" height="119" /></p>
+<p>Everything you could ever need to start your own micronation is located on this website or in other resources that it links to. If you're daunted by the whole task of starting a micronation, don't worry! Our Quick and Easy Guide will help you if you're someone in a hurry. However, we still recommend you read through everything.</p>
